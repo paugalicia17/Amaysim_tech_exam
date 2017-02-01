@@ -1,0 +1,1 @@
+# Amaysim_tech_exam
